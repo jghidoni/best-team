@@ -1,2 +1,2 @@
 # best-team
-it's freezingly cold.
+it's freezing.
